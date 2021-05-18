@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @alberthruado
 - 👀 I’m interested in learning.
 - 🌱 I’m currently learning to learn.
-- 💞️ I’m looking to collaborate on wants to learn.
+- 💞️ I’m looking to collaborate to those who's willing to learn.
 - 📫 How to reach me ? learn in learning.
 
 <!---
